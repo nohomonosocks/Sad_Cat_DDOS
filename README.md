@@ -1,9 +1,8 @@
 # Sad_Cat_DDOS
 
 
-**!!ATTENTION!!**
-THE LINK FOR DOWNLOAD IS
-https://drive.google.com/uc?export=download&id=1YK6MdlmLIpyv0F7wM5M7-LOmmmFNoZTa
+**THE LINK FOR DOWNLOAD IS
+https://drive.google.com/uc?export=download&id=1YK6MdlmLIpyv0F7wM5M7-LOmmmFNoZTa**
 
 
 Tryna make the fbi come after me (this is a joke please dont this isnt for ddosing any big company you do not have authorized access to.,)
